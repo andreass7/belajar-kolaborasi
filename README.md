@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-belajar Dicoding itu asik banget
+belajar Dicoding itu asyik banget
